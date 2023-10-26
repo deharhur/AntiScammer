@@ -1,4 +1,2 @@
 # AntiScammer
-# AntiScammer
-# AntiScammer
-# AntiScammer
+pls use .png picture.
